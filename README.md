@@ -2,7 +2,7 @@
 
 Asian Representation. How Accurately Are Asian Americans Cast in Hollywood? - The Pudding https://pudding.cool/2025/05/aapi-casting/ 
 
-## Carolina Retamal 
+_Carolina Retamal_
 
 ## Descripción
 
